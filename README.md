@@ -1,2 +1,1 @@
-Veni, vidi, vici
 
